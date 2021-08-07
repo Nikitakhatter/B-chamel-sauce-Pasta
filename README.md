@@ -1,1 +1,2 @@
-# B-chamel-sauce-Pasta
+White sauce pasta is simply cooked pasta mixed with a silky smooth & decadent white sauce made of milk, butter and flour.
+White sauce is also known as Bechamel sauce has it is originated from the Italian & French Cuisines.
